@@ -10,3 +10,4 @@ Nguyễn Hà Anh Vũ - 21520531
 Nguyễn Hoàng Tân - 21521413
 Nguyễn Ngọc Quang Huy - 20521401
 Lê Huỳnh Khánh Duy - 21521995
+Trần Duy Tùng - 21522770
